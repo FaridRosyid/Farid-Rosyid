@@ -1,0 +1,2 @@
+# Farid-Rosyid
+Solo
